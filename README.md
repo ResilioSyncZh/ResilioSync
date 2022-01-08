@@ -1,6 +1,6 @@
 <h1>Resilio Sync资源检索 2022年1月更新</h1>
 
-![[加入电报](https://t.me/Resiliosynczh)]
+[[加入电报](https://t.me/Resiliosynczh)]
 
 [加入电报](https://t.me/Resiliosynczh)
 
@@ -46,3 +46,17 @@ Sync 基于BT技术，做种的人越多下载速度越快，每个资源的背�
 [测试页面](https://www.notion.so/1395d9fa69b74f92b156d5c00900d792)
 
 [https://met.red/h/location/push?server=foVcvoyLLbyWIT7B](https://met.red/h/location/push?server=foVcvoyLLbyWIT7B)
+
+
+<h2>Resilio Sync資源收錄網站</h2>
+
+👅告知
+
+Sync 基於BT技術，做種的人越多下載速度越快，每個資源的背後是成千上百的網友利用自己的業餘時間，默默無私地貢獻著自己寶貴的硬盤和帶寬，為了 Sync 的可持續發展，下載完成後請保持客戶端運行，繼續做一個有種的人。
+
+說速度慢的一是網絡環境（各種方面）不好，二是上傳的人不多。上行帶寬通常都是閒置的，貢獻出來沒啥影響。共享這個東西就是我為人人，才有人人為我。大家都限制了上傳的速度，最終影響到的還是自己。
+
+🈲禁止冰戀、幼、南桐、人獸等資源，若發現可以在電報群裡反饋，歡迎在群內分享投稿，會收錄到此頁面
+
+全球最大最全的中文Resilio Sync资源收录交流网站
+
