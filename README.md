@@ -1,6 +1,6 @@
-<h1>Resilio Sync资源检索 2022年1月更新
+<h1>Resilio Sync资源检索 2022年1月更新</h1>
 
-![[加入电报](https://t.me/Resiliosynczh)](https://s3-us-west-2.amazonaws.com/secure.notion-static.com/412deab4-48ec-476e-ba72-0eed973dc603/Untitled.png)
+![[加入电报](https://t.me/Resiliosynczh)]
 
 [加入电报](https://t.me/Resiliosynczh)
 
@@ -27,7 +27,6 @@ Sync 基于BT技术，做种的人越多下载速度越快，每个资源的背�
 **禁止冰恋、幼、南桐、人兽等资源**
 
 **若发现可在电报群反馈，欢迎在群内分享投稿，会收录到此页面**
-
 ---
 
 🕹️**[下载软件](https://www.notion.so/dae3c6c9f5ee4861878801a77ce3d710)**          🕵🏿‍♀️**[使用教程](https://www.notion.so/Resilio-Sync-82567c49d9564c87a658462676e811b6)**          📁[常见问题](https://www.notion.so/Resilio-Sync-daef58522a3f43a991d3c401ace28fa3)           ****
@@ -39,6 +38,15 @@ Sync 基于BT技术，做种的人越多下载速度越快，每个资源的背�
 [资源列表](https://www.notion.so/7715ddee16b34350916f37722b9ca6a8)
 
 ---
+Jodan Bill, [2022/1/8 星期六 22:32]
+成人动漫 BRWDXO6UZQSTF6CDSL7N6QEYV3HZAS2X7 #漫画 2.65TB
+
+Jodan Bill, [2022/1/8 星期六 22:32]
+经济学人 BYRRPM52YK6Z6TETDQITFXBV647XLCNIO #电子书
+
+Jodan Bill, [2022/1/8 星期六 22:32]
+纽约客 BT6B4PV7EDV3QXNLKU5KX2WIUOKC7AGTW #电子书
+
 
 [合集](https://www.notion.so/d22d1e5b83e54bd9935feb2c971a884a)
 
