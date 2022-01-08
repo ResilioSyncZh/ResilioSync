@@ -1,8 +1,8 @@
 <h1>Resilio Sync资源检索 2022年1月更新</h1>
 
-[[加入电报](https://t.me/Resiliosynczh)]
 
 [加入电报](https://t.me/Resiliosynczh)
+
 
 ![https://badges.toozhao.com/badges/01FKK6TMP1B3R2N5A4QMRE623T/green.svg](https://badges.toozhao.com/badges/01FKK6TMP1B3R2N5A4QMRE623T/green.svg)
 
