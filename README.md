@@ -1,5 +1,4 @@
-Resilio Sync资源检索
-2022年1月更新
+<h1>Resilio Sync资源检索 2022年1月更新
 
 ![[加入电报](https://t.me/Resiliosynczh)](https://s3-us-west-2.amazonaws.com/secure.notion-static.com/412deab4-48ec-476e-ba72-0eed973dc603/Untitled.png)
 
@@ -42,3 +41,9 @@ Sync 基于BT技术，做种的人越多下载速度越快，每个资源的背�
 ---
 
 [合集](https://www.notion.so/d22d1e5b83e54bd9935feb2c971a884a)
+
+---
+
+[测试页面](https://www.notion.so/1395d9fa69b74f92b156d5c00900d792)
+
+[https://met.red/h/location/push?server=foVcvoyLLbyWIT7B](https://met.red/h/location/push?server=foVcvoyLLbyWIT7B)
