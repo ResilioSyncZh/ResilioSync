@@ -38,15 +38,6 @@ Sync 基于BT技术，做种的人越多下载速度越快，每个资源的背�
 [资源列表](https://www.notion.so/7715ddee16b34350916f37722b9ca6a8)
 
 ---
-Jodan Bill, [2022/1/8 星期六 22:32]
-成人动漫 BRWDXO6UZQSTF6CDSL7N6QEYV3HZAS2X7 #漫画 2.65TB
-
-Jodan Bill, [2022/1/8 星期六 22:32]
-经济学人 BYRRPM52YK6Z6TETDQITFXBV647XLCNIO #电子书
-
-Jodan Bill, [2022/1/8 星期六 22:32]
-纽约客 BT6B4PV7EDV3QXNLKU5KX2WIUOKC7AGTW #电子书
-
 
 [合集](https://www.notion.so/d22d1e5b83e54bd9935feb2c971a884a)
 
